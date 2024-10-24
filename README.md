@@ -1,4 +1,4 @@
-# Quadro Negro ⚫
+# Quadro Negro
 
 # Link do projeto:
 
